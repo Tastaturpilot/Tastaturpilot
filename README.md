@@ -1,1 +1,1 @@
-- 👋 Hi, I’m not a programmer neither do I know anything about coding. I just want to try out all the awesome stuff you all build❣
+- 👋 Hi, I’m not a programmer neither do I know anything about coding. I just want to try out the awesome stuff you all build❣
